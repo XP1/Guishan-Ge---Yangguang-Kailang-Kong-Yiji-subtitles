@@ -9,7 +9,7 @@
 《阳光开朗孔乙己》完整版 鬼山哥本人入驻Youtube！:
 * https://www.youtube.com/watch?v=Um6BRCPvNDA
 
-《陽光開朗孔乙己》:
+~~《陽光開朗孔乙己》:~~
 * ~~https://www.bilibili.com/video/BV1ys4y1S79Y/~~
 
 ### Mirrors
