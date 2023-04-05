@@ -11,5 +11,15 @@
 
 ### Mirrors
 
+#### 1080p
+
+《阳光开朗孔乙己》完整版-鬼山哥【转载】:
+* https://www.youtube.com/watch?v=5qgTlC5v-EM
+
+B站UP主：鬼山哥《阳光开朗孔乙己》完整版补档:
+* https://www.youtube.com/watch?v=z1gVypI0T90
+
+#### 720p
+
 《陽光開朗孔乙己》:
 * https://www.youtube.com/watch?v=7oPsBbjtuLE
